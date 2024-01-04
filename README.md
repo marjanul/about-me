@@ -1,2 +1,2 @@
 # about-me
-Hi, I'm Marjanul. Passionate about programming &amp; love my cat jack.
+Hi, I'm Marjanul. Passionate about programming &amp; love my cat Jack. Love playing Football with my mates! Sounds Good hell yeah...
